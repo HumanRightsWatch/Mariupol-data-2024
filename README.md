@@ -21,7 +21,7 @@ In a handful of cases, Human Rights Watch altered assets in order to protect the
 
 ### Mytropolytska Street 98 
 * Visual assets
-  *   A [video](https://drive.google.com/file/d/1TJv1IvPte0XRw8lNu0cgpq6nEAcx6QqV/view?usp=sharing) of people cooking outside of Mytropolytska 98, posted to Telegram by a user on March 15, 2022.
+  *   A [video](https://drive.google.com/file/d/1b6gAZSc4L3ua5ZX21Y1i_5nv0dKFN_sx/view?usp=sharing) of people cooking outside of Mytropolytska 98, posted to Telegram by a user on March 15, 2022.
   *   A [video](https://drive.google.com/file/d/1b3wF4GkS1efJmmi0qG1cGcEJ56NdHL7F/view?usp=sharing) showing the front of Mytropolytska 98 on fire after a March 11, 2022 strike, posted to YouTube by a user on April 22, 2022.
   *   A [video](https://drive.google.com/file/d/1kh0FQWhwocXx4RWzJ9EqpAZDzf3AR8f7/view?usp=sharing) showing the back of Mytropolytska 98 on fire after a March 11, 2022 strike, posted to TikTok by a user on April 22, 2022.
   *   A [video](https://drive.google.com/file/d/1OfJ6e3uK4V3p20DP--LKTb9YOQjzd_LP/view?usp=sharing) showing the ruins of Mytropolytska Street 98 after a March 11, 2022 strike, posted to Telegram by a user on March 20, 2022.
